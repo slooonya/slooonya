@@ -1,1 +1,1 @@
-somehow I manage to be iconic on a daily basis
+talk 0s and 1s to me. beep boop
